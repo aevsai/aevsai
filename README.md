@@ -6,6 +6,6 @@ Nice to meet you. What you need to know about me:
 
 🤖 Currently working at https://bloodgpt.com
 
-🔥 In spare time work on ai mate https://lutinapp.com
+🔥 In spare time work on ai companion https://lutinapp.com
 
 See You, Space Cowboy 🚀
